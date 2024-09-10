@@ -1,2 +1,2 @@
-# healthcare and human devlopment
+# Healthcare and Human devlopment
 
